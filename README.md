@@ -1,2 +1,2 @@
-# Basktball-Stars-2000-2022
+# The G.O.A.T conversation
 Micheal Jordan, he was best player to play the game of basketball.
